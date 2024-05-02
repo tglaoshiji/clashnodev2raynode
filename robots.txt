@@ -1,5 +1,5 @@
 User-agent: *
 Allow: /
 
-Sitemap: http://telegeam.github.io/blog1/sitemap.xml
-Sitemap: http://telegeam.github.io/blog1/feed.xml
+Sitemap: https://tglaoshiji.github.io/clashnodev2raynode/sitemap.xml
+Sitemap: https://tglaoshiji.github.io/clashnodev2raynode/feed.xml
