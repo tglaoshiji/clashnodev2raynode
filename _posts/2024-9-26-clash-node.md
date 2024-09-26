@@ -15,12 +15,12 @@ keywords: Clash,v2ray,iOS,Quantumult,Quantumult X,Shadowrocket,SSR,节点,苹果
 
 ###  高速机场推荐1
 
-[【EFCloud】](https://www.easyfastcloud.com/#/register?code=zZbUVKvu)
+[【EFCloud】](https://inv.easyfastcloud.com/#/register?code=zZbUVKvu)
 不限设备数
 
 解锁流媒体、chatGPT
 
-注册地址：[【EFCloud官网（点击注册）】](https://www.easyfastcloud.com/#/register?code=zZbUVKvu)
+注册地址：[【EFCloud官网（点击注册）】](https://inv.easyfastcloud.com/#/register?code=zZbUVKvu)
 
 ###  高速机场推荐2
 
