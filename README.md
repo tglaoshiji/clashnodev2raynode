@@ -1,8 +1,8 @@
-# 2024年12月20日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
+# 2024年12月21日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
 
 关注[「TG频道」](https://t.me/+Nz3-ybO4nwMzMDU1) 可第一时间获得节点更新消息
 
-本次更新可用节点，最高速度27.35M/S。
+本次更新可用节点，最高速度27.55/S。
 
 覆盖美国、新加坡、加拿大、香港、欧洲、韩国、日本、东南亚、中东、南美等多个区域。
 
@@ -25,6 +25,58 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 
 注册地址：[【FCCloud（点击注册）】](https://v1.fastconnectcloud1.com/#/register?code=qGNvJ8Oy)
 
+* * *
+
+### [星辰VPN](https://t.xcvpn.us/#/register?code=tLBWwhPs)
+
+注册链接：[t.xcvpn.us](https://t.xcvpn.us/#/register?code=tLBWwhPs)
+
+试用：
+
+最便宜的订阅有6元 60G/月。
+
+便宜是真便宜，9.9 元钱买1个月，每个月 140 G 流量。自己用了一个多月，看视频完全不卡，下载游戏也很快。
+
+最大的缺点就是太便宜了
+
+* * *
+
+### [三分机场](https://uk.sanfen.me/register?code=D3AphwEh)
+
+注册链接：[uk.sanfen.me](https://uk.sanfen.me/register?code=D3AphwEh)
+
+
+试用：
+
+最便宜的订阅有5元 5000G/月。
+
+全球20+国家和地区的节点 包含100+节点；更高级的流媒体解锁 多地原生ip；速度更快更稳定 适合主力使用；限制5个客户端同时在线
+
+* * *
+
+### [稳连云](https://wl.awcmam.com/#/register?code=tsTYVbC0)
+
+注册链接：[wl.awcmam.com](https://wl.awcmam.com/#/register?code=tsTYVbC0)
+
+试用：
+
+最便宜的订阅有5元 1000G/月。
+
+流媒体解锁；支持协议vmess；仅限本人使用；不限制本人设备数；500M 峰值带宽
+
+* * *
+
+### [宇宙机场](https://xn--mesx3htbz31e.com/#/register?code=Cy7u71Ul)
+
+注册链接：[宇宙机场.com](https://xn--mesx3htbz31e.com/#/register?code=Cy7u71Ul)
+
+试用：
+
+最便宜的订阅有5元 1000G/月。
+
+流媒体解锁；支持协议vmess；仅限本人使用；不限制本人设备数；500M 峰值带宽
+
+* * *
 ### 高速机场推荐3
 
 [【火烧云】](https://huoshaoyun.pro/#/register?code=iYoHYy6g)
@@ -49,11 +101,11 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 
 v2ray订阅链接:
 
-https://lailai159.serv00.net/uploads/2024/12/20241220.txt
+https://lailai159.serv00.net/uploads/2024/12/20241221.txt
 
 clash订阅链接：
 
-https://lailai159.serv00.net/uploads/2024/12/20241220.yaml
+https://lailai159.serv00.net/uploads/2024/12/20241221.yaml
 
 温馨提示：
 
