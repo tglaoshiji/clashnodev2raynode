@@ -1,8 +1,8 @@
-# 2024年12月21日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
+# 2024年12月22日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
 
 关注[「TG频道」](https://t.me/+Nz3-ybO4nwMzMDU1) 可第一时间获得节点更新消息
 
-本次更新可用节点，最高速度27.55/S。
+本次更新可用节点，最高速度2743/S。
 
 覆盖美国、新加坡、加拿大、香港、欧洲、韩国、日本、东南亚、中东、南美等多个区域。
 
@@ -101,11 +101,11 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 
 v2ray订阅链接:
 
-https://lailai159.serv00.net/uploads/2024/12/20241221.txt
+https://lailai159.serv00.net/uploads/2024/12/20241222.txt
 
 clash订阅链接：
 
-https://lailai159.serv00.net/uploads/2024/12/20241221.yaml
+https://lailai159.serv00.net/uploads/2024/12/20241222.yaml
 
 温馨提示：
 
