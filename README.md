@@ -1,8 +1,8 @@
-# 2024年12月22日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
+# 2024年12月23日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
 
 关注[「TG频道」](https://t.me/+Nz3-ybO4nwMzMDU1) 可第一时间获得节点更新消息
 
-本次更新可用节点，最高速度2743/S。
+本次更新可用节点，最高速度22.57/S。
 
 覆盖美国、新加坡、加拿大、香港、欧洲、韩国、日本、东南亚、中东、南美等多个区域。
 
@@ -79,13 +79,13 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 * * *
 ### 高速机场推荐3
 
-[【火烧云】](https://huoshaoyun.pro/#/register?code=iYoHYy6g)
+[【火烧云】](https://cn1.huoshaoyun.pro/#/register?code=iYoHYy6g)
 
 季付送小火箭，流量多，优惠多
 
 而且不限登录设备数，chatGPT 解锁奈飞、Disney、HBO、TVB、Happyon、AbemaTV 等在内的多种流媒体视频
 
-注册地址：[【火烧云官网（点击注册）】](https://huoshaoyun.pro/#/register?code=iYoHYy6g)
+注册地址：[【火烧云官网（点击注册）】](https://cn1.huoshaoyun.pro/#/register?code=iYoHYy6g)
 
 ###  高速机场推荐4 
 
@@ -101,11 +101,11 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 
 v2ray订阅链接:
 
-https://lailai159.serv00.net/uploads/2024/12/20241222.txt
+https://lailai159.serv00.net/uploads/2024/12/20241223.txt
 
 clash订阅链接：
 
-https://lailai159.serv00.net/uploads/2024/12/20241222.yaml
+https://lailai159.serv00.net/uploads/2024/12/20241223.yaml
 
 温馨提示：
 
@@ -125,9 +125,9 @@ https://lailai159.serv00.net/uploads/2024/12/20241222.yaml
 
 ###  高速机场推荐5 
 
-[「 极速云」](https://v1.fastconnectcloud1.com/#/register?code=qGNvJ8Oy)
+[「 极速云」](https://w2.rouhe88.com/#/register?code=yIoDXKCi)
 
-注册地址：[【极速云官网（点击注册）】](https://v1.fastconnectcloud1.com/#/register?code=qGNvJ8Oy)
+注册地址：[【极速云官网（点击注册）】](https://w2.rouhe88.com/#/register?code=yIoDXKCi)
 
 全球节点，解锁流媒体GPT，平民价格
 
