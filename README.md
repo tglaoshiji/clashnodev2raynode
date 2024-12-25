@@ -1,4 +1,4 @@
-# 2024年12月25日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
+# 2024年12月26日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
 
 关注[「TG频道」](https://t.me/+Nz3-ybO4nwMzMDU1) 可第一时间获得节点更新消息
 
@@ -93,11 +93,11 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 
 v2ray订阅链接:
 
-https://lailai159.serv00.net/uploads/2024/12/20241225.txt
+https://lailai159.serv00.net/uploads/2024/12/20241226.txt
 
 clash订阅链接：
 
-https://lailai159.serv00.net/uploads/2024/12/20241225.yaml
+https://lailai159.serv00.net/uploads/2024/12/20241226.yaml
 
 温馨提示：
 
