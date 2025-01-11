@@ -1,4 +1,4 @@
-# 2025年1月10日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
+# 2025年1月11日更新免费节点|clash|v2ray小火箭订阅链接 科学上网|梯子|翻墙|代理|VPN|外网
 
 关注[「TG频道」](https://t.me/+Nz3-ybO4nwMzMDU1) 可第一时间获得节点更新消息
 
@@ -39,16 +39,6 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 
 * * *
 
-### [三分机场](https://uk.sanfen.me/register?code=D3AphwEh)
-
-注册链接：[uk.sanfen.me](https://uk.sanfen.me/register?code=D3AphwEh)
-
-
-最便宜的订阅有9.9元 80G/月。
-
-全球20+国家和地区的节点 包含100+节点；更高级的流媒体解锁 多地原生ip；速度更快更稳定 适合主力使用；限制5个客户端同时在线
-
-* * *
 
 ### [稳连云](https://xn--9kqq77hqun.com/#/register?code=tsTYVbC0)
 
@@ -60,15 +50,7 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 
 * * *
 
-### [宇宙机场](https://xn--mesx3htbz31e.com/#/register?code=Cy7u71Ul)
 
-注册链接：[宇宙机场.com](https://xn--mesx3htbz31e.com/#/register?code=Cy7u71Ul)
-
-最便宜的订阅有5元 1000G/月。
-
-流媒体解锁；支持协议vmess；仅限本人使用；不限制本人设备数；500M 峰值带宽
-
-* * *
 ### 高速机场推荐3
 
 [【火烧云】](https://cn1.huoshaoyun.pro/#/register?code=iYoHYy6g)
@@ -93,11 +75,11 @@ FCCloud全球节点，解锁流媒体GPT，平民价格
 
 v2ray订阅链接:
 
-https://a.nodeshare.xyz/uploads/2025/1/20250110.txt
+https://a.nodeshare.xyz/uploads/2025/1/20250111.txt
 
 clash订阅链接：
 
-https://a.nodeshare.xyz/uploads/2025/1/20250110.yaml
+https://a.nodeshare.xyz/uploads/2025/1/20250111.yaml
 
 温馨提示：
 
