@@ -1,6 +1,6 @@
 name: Build and Deploy
 
-on:
+fghjkon:
   push:
     branches: [ master ]
 
